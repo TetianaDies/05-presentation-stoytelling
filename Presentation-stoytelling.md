@@ -4,6 +4,7 @@ My presentation will be about my experience in graphic design. I also remember m
 As you can see from one of my most common mistakes, I didn't save my work many times. Well let's drop it now...<br/>
 <br/>
 <img src="/img_all_slides/Presentation_2_slide.png" width="800">
+<br/>
 How did i start doing graphic design? start doing something)
 <br/>
 
